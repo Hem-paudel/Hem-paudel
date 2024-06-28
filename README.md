@@ -9,3 +9,4 @@
 - 📫 How to reach me: sagar709@hotmail.com
 - 😄 Pronouns: Hem
 - ⚡ Fun fact: Playing with a computer
+- ⚡  When I am free from work I love to go to the gym and also l like swimming.
